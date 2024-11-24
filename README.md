@@ -1,5 +1,5 @@
 # cosmopolitan
-•	1,5 cl Liqueur d'orange Cointreau
-•	3 cl Vodka Zubrowka
-•	1.5 cl Jus de citron vert
-•	1 cl Jus de cranberry
+•	3 cl Liqueur d'orange Cointreau
+•	6 cl Vodka Zubrowka
+•	3 cl Jus de citron vert
+•	2 cl Jus de cranberry
